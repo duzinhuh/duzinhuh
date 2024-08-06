@@ -8,4 +8,4 @@ Meu nome é Eduardo, e criei este perfil para os estudos do meu colégio.
 
 - Ultilizo este espaço para minha organização e compartilhamento de meus projetos desenvolvidos
 
-![](https://media1.tenor.com/m/47VEBhH1e10AAAAd/joker-sigma.gif)
+![](https://media1.tenor.com/m/azrpJcLS4VUAAAAC/patrick-bateman-joker.gif)
